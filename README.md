@@ -1,4 +1,1 @@
-- 👋 Hi, I’m Kenneth Chua
-- Joined PointStar Since 2021
-
-![giphy](https://github.com/KennethChuaPS/KennethChuaPS/assets/142898065/51508d5b-2227-4567-93eb-bf7ab22ede75)
+![4910984](https://github.com/KennethChuaPS/KennethChuaPS/assets/142898065/ab29f6be-73f7-49b0-9bfc-da1eeccc4a9e)
